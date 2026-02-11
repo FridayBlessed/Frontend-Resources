@@ -1,2 +1,2 @@
-Download more resources at [Flavio Copes](https://flaviocopes.com/access/).
+Download more PDF resources at [Flavio Copes](https://flaviocopes.com/access/).
 
